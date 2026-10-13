@@ -13,4 +13,4 @@
 
 ### Kontak
 
-Pesawaran, Lampung · [WhatsApp](https://wa.me/6283193266639) · [temancipta.site](https://temancipta.site/)
+[Instagram](https://www.instagram.com/temancipta/) · [temancipta.site](https://temancipta.site/)
